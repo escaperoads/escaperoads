@@ -1,4 +1,4 @@
-# Title: Tired of the Same Old Games? Discover the Thrill of Escape Road and More!
+# Tired of the Same Old Games? Discover the Thrill of Escape Road and More!
 
 Are you a casual gamer always on the hunt for that next quick and satisfying play?  Do you love the challenge of a puzzle, the satisfaction of a well-placed move, or the fun of a simple, addictive game? Then you need to know about [escape road](https://escaperoads.org) and the exciting world of online mini-games waiting for you at escaperoads.org
 
